@@ -1,1 +1,0 @@
-# DharmQuant-Asset-Management-Firm
